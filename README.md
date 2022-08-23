@@ -1,1 +1,1 @@
-Cybersecurity|Data-analysis|Developer|Joker :smiley:
+Cybersecurity | Data-analysis | Developer | Joker :smiley:
