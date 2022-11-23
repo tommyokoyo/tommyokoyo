@@ -1,1 +1,1 @@
-Cybersecurity | Data-analysis | Developer | Joker :smiley:
+Cybersecurity Enthusiast | Data-analysis 📃: | 🐍 developer: | Joker :smiley:
